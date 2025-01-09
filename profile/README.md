@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/492bf567-0f9a-4097-8708-10d05029a754)## DESCARGAR AHORA➡️📱 [REGALOCODIFF APK](https://bom.so/iqx69c)
+## DESCARGAR AHORA➡️📱 [REGALOCODIFF APK](https://bom.so/iqx69c)
 
 ![image](https://github.com/user-attachments/assets/47d7aecd-07b5-4a91-af4f-df3dd5f27e6e)
 
